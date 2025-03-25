@@ -1,4 +1,4 @@
-https://github.com/achmadzubairr/achmadzubairr/blob/main/README.md- 👋 Hi, I’m @achmadzubairr
+👋 Hi, I’m @achmadzubairr
 - 👀 I’m interested in business, investing, cloud server
 - 🌱 I’m currently learning how to code
 - 💞️ I’m looking to collaborate on start up/business opportunity
